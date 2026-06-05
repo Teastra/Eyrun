@@ -1,0 +1,1 @@
+Eine Katze die mit dem "Knäul des Schicksals" spielt und dabei die gewisse Menge Zufall ins Schicksal bringt.
